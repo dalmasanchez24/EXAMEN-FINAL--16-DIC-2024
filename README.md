@@ -22,7 +22,7 @@ Tecnicatura Superior Preceptor Turno Mañana
    [[Informe Preceptores en el Nivel Secundario - Región Noreste Argentino](MODIFICA - AQUI VA LA DIRECCION COMPARTIDA DEL ARCHIVO)]
    
    ### Se adjunta información sobre Sueldos Promedios Anuales de Preceptores en Argentina.
-   [[Tablas de Sueldos Promedios Preceptores en Argentina](https://docs.google.com/spreadsheets/d/1stYtE50wwAGCFQgc6B3Om8VQQj1kODQ5ZLgkWszHzw8/edit?gid=0#gid=0)
+   [[Tablas de Sueldos Promedios Preceptores (https://docs.google.com/spreadsheets/d/1stYtE50wwAGCFQgc6B3Om8VQQj1kODQ5ZLgkWszHzw8/edit?gid=0#gid=0)
   
    
    
